@@ -1,2 +1,2 @@
 # FBmbf
-FBmbf
+gunakan dengan bijak :')
